@@ -1,1 +1,1 @@
-# VeriYapilari_Odev1
+# LİNKLİ LİSTELER
